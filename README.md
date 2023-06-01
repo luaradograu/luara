@@ -1,3 +1,3 @@
 # luara
 beleza mano
-de boa se loko
+de boa slk
